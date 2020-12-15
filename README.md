@@ -1,1 +1,0 @@
-# gyde.girhub.io
